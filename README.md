@@ -7,3 +7,4 @@
 #### Tutorial Completo en [Zacetrex](http://zacetrex.com)
 
 ![](https://zacetrex.com/wp-content/uploads/2025/03/Kit-de-Invernadero.png)
+![](https://zacetrex.com/wp-content/uploads/2025/03/Kit-de-Invernadero_-alimentacion.png)
